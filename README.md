@@ -1,7 +1,7 @@
 - 👋 Hi, I’m EDISSANDROSPOHR
 - 👀 I’m interested in, nada
 - 🌱 I’m currently learning, nada
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on, sendo monitor escolara nas terça-feiras a tarde
 - 📫 How to reach me oliveira.edissandro@escola.pr.gov.br
 - 😄 Pronouns: Ele/Dele
 - ⚡ Fun fact: tenho 15 anos
